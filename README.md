@@ -1,3 +1,4 @@
 # Croissant
 Baguette is no Croissant
-lass mich sterben
+
+ich stech dein croissant mit meinem baguette
